@@ -7,3 +7,6 @@ Tham khảo thế mạnh từ những cuộc thi trước:
 + 2016: Từ 71 bài thi
 + 2017: Từ 63 bài thi
 + 2018: Từ 70 bài thi
+
+New Idea:
+
